@@ -1,5 +1,3 @@
--  Hi, I’m @OMINHOCOS.
--  I have 20 years old.
 -  I’m interested in Industrial Maintenance.
 
 
